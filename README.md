@@ -7,7 +7,8 @@
 3. I don't want to engage in any relationship.
 4. I feel tired about the coming examing.
 5. FXXK！
-![]![Uploading image.png…]()
+![]![image](https://user-images.githubusercontent.com/84488157/118941448-52265e80-b984-11eb-822e-4f019c431549.png)
+
 
 **Branda7/branda7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
