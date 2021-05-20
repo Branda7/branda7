@@ -2,11 +2,14 @@
 #I AM A SUPER BORING GUY.
 ### I EAT TOO MUCH TODAY.
 ### I AM FEEL SO FULL NOW.
-1. I am a lazy guy.
-2. I don't like study.
-3. I don't want to engage in any relationship.
-4. I feel tired about the coming examing.
-5. FXXK！
+# some murmurs
+1.I am not a les,90%.
+2.I just don't wanna get into any relationship.
+3.Although sometimes I really wanna try sex.
+4.I have had a lot of crushs.
+5.Those feelings come quickly.
+6.Anyway they all gone.
+7.I feel great to get alone with girls.
 
 
 ![]![image](https://user-images.githubusercontent.com/84488157/118941448-52265e80-b984-11eb-822e-4f019c431549.png)
