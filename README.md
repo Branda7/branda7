@@ -1,7 +1,14 @@
 ### Hi there 👋
 #I AM A SUPER BORING GUY.
-![]![image](https://user-images.githubusercontent.com/84488157/118931358-77fa3600-b979-11eb-94d7-2be95c914632.png)
-<!--
+### I EAT TOO MUCH TODAY.
+### I AM FEEL SO FULL NOW.
+1. I am a lazy guy.
+2. I don't like study.
+3. I don't want to engage in any relationship.
+4. I feel tired about the coming examing.
+5. FXXK！
+![]![Uploading image.png…]()
+
 **Branda7/branda7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
