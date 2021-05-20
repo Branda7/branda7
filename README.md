@@ -1,8 +1,9 @@
 ### Hi there 👋
 #I AM A SUPER BORING GUY.
+![]![image](https://user-images.githubusercontent.com/84488157/118931358-77fa3600-b979-11eb-94d7-2be95c914632.png)
 <!--
 **Branda7/branda7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-![]![image](https://user-images.githubusercontent.com/84488157/118931358-77fa3600-b979-11eb-94d7-2be95c914632.png)
+
 
 Here are some ideas to get you started:
 
